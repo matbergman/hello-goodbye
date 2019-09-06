@@ -19,5 +19,7 @@ Such opportunities were easier to find back in the day. Cheap city rent and a li
 What’s next for me? I’m free from the cultish meritocracy work ethic I once embraced. My creative energy is now focused on personally meaningful projects. I’m rested and looking ahead. See you around! 
 
 Love,
+
 Mat
+
 www.matbergman.com
